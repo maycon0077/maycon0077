@@ -9,7 +9,7 @@ eu sou o aluno maycon
 
 
 
- ## você pode entrar em contanto comido 📫
+ ## você pode entrar em contanto comigo 📫
 
  00001202388735sp@al.educacao.sp.gov.br
 
