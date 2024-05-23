@@ -15,6 +15,6 @@ eu sou o aluno maycon
 
 
 
- ![yuri](https://tenor.com/pt-BR/view/correndo-yuri-alberto-apressado-acelerado-olhando-pro-lado-gif-2175547732645265525)
+ ![](https://media1.tenor.com/m/OVBQT3B0ncoAAAAd/mizzymiz-monkey-sit.gif)
 
 
